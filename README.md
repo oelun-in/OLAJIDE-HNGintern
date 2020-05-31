@@ -1,0 +1,1 @@
+Hello, My name is Olajide Oluniyi a HNG TECH intern. I am aspiring to be a renowned Mobile and Web developer. I am also hoping to meet and rub minds with great tech gurus and enthusiasts whose love for coding and solving challenges tavaging our society is solid. Thank you. 
